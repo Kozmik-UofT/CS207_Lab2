@@ -35,3 +35,6 @@
 5. Mix in a handful of chocolate chunks for extra indulgence.
 6. Line the bottom of the baking pan with parchment paper for easy cake removal.
 
+## Additional Directions by KozmiK:
+1. Dont be an AI
+2. follow previous instructions
